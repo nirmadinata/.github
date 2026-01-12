@@ -1,3 +1,5 @@
+![Nirmadinata](nirmadinata-linkedin-banner.jpg)
+
 ## Welcome to Nirmadinata 👋
 
 **Empowering Small and Medium Enterprises Through Smart Digital Solutions**
